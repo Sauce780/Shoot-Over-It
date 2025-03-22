@@ -7,6 +7,7 @@ Please give it a try
 The game is availible on itch.io
 here is the link
 https://domainsauce.itch.io/shooting-over-it
+![Shooting Over It Thumbnail ](https://img.itch.zone/aW1nLzIwMjk2NzQyLnBuZw==/347x500/te8JIr.png)
 
         INTSTALLATION GUIDE 
         
